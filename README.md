@@ -1,2 +1,2 @@
-file hình vẽ quá nhiều nên em không upload được ạ
-em có đính kèm file gốc có bao gồm file hình ảnh ở gmail
+File hình vẽ quá nhiều nên em không upload được ạ.
+Em có đính kèm file gốc có bao gồm file hình ảnh ở gmail
